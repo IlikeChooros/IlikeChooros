@@ -1,6 +1,6 @@
 ## About me
 I'm an engineer of digital software development, currently making modern, cutting-edge, open source projects. 
-A graduate of social and modern dynamics of 
+A graduate of social and modern dynamics of human development, studied strictly for 2 years topcis such as Poaceae also called Gramineae.
 
 
 ## Look at those graphs
